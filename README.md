@@ -2,7 +2,7 @@
 - 👀 I’m interested in read a book
 - 🌱 I’m currently learning software
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
+- 📫 How to reach me nazlisengur@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
